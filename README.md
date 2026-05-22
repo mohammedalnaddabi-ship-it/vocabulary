@@ -1,0 +1,1 @@
+vocabulary for G12
